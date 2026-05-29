@@ -7,7 +7,7 @@
 
 playlists:
 * [Welcome to Horrorland](https://open.spotify.com/playlist/2jzbc2ber6DJrktDFA1zvJ?si=rUZ1IR7NRQuFeKdwcU-7ug&pi=75goF9abS6KJk)
-* [60s+70s playlist](https://open.spotify.com/playlist/6zHhSb62eJeinATthc2fnd?si=V9oJ2epMTDOJNWesTlg55Q&pi=KGVDRcXKTCiAz)
+* [🍊 60s+70s mix](https://open.spotify.com/playlist/6zHhSb62eJeinATthc2fnd?si=V9oJ2epMTDOJNWesTlg55Q&pi=KGVDRcXKTCiAz)
 * [◇ CYBER Y2K ◇](https://open.spotify.com/playlist/5ghgTIJTCO5ywVCjDBQB6Y?si=u581DsrqQumdn9wSEPKxbw&pi=9pbmhCB5RFaKy)
 * [🖍️🌈actual kidcore playlist🌈🖍️](https://open.spotify.com/playlist/1SJLdqdW9xEXDM6Q27ZwtA?si=OFOhiNo7QFyU5Zw3SuOHsw&pi=xBF2nSiDSsCFl)
 * [Daydream In Blue](https://open.spotify.com/playlist/7vLz0EIPAjRo7nzWbZh1ia?si=VVLImO5tT5KKLMTy1Tv-FA&pi=5p-bnYenTH2Yt)
