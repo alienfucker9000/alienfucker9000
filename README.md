@@ -17,6 +17,7 @@ playlists:
 
 quizzes:
 * [which of my favorite aesthetics are you](https://uquiz.com/q43cqO)
+* [which of my favorite aesthetics are you 2](https://uquiz.com/dGOy8r)
 * [pick stuff and i'll give an actual weirdcore song](https://uquiz.com/czvTOs)
 * [let me give you actual weirdcore songs 2!](https://uquiz.com/SFiWzn)
   
